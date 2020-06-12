@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+# My favorites :heart:
+
+* volleyball 
+* Seventeen :gem:
+* Anything blue :dolphin:
+* Ramen :ramen:
